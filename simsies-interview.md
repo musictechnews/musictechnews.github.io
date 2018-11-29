@@ -1,4 +1,4 @@
-# Interview with ZULI
+# Interview with Simsies
 
 *Conducted by Matt Roman*
 
